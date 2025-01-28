@@ -10,13 +10,7 @@ proship, pdf file, basic criteria, dsmp fans, helluva/hazbin fans yucky wucky..,
 
 INT:
 
-curse of darkheart fans i lOVE THAT GAME SO MUCH ARGHHHH
-
-not weird phighting fans
-
-sprunki fans pplease
-
-pjsk fans
+curse of darkheart fans i lOVE THAT GAME SO MUCH ARGHHHH, not weird phighting fans, sprunki fans pplease, pjsk fans, fosaken, trud, basically any roblox media mayhaps...
 
 BYI:
 
