@@ -4,8 +4,6 @@ avid mentally unwell ponytown player
 
 DNI:
 
-**not exactly dni, but subkit makes me uncomfy. it reminds me of past relations. please refrain from c+h with me as a med or sub or something when im the other.**
-
 proship, pdf file, basic criteria, dsmp fans, helluva/hazbin fans yucky wucky..,,..
 
 INT:
