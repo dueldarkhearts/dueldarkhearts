@@ -8,7 +8,7 @@ proship, pdf file, basic criteria, dsmp fans, helluva/hazbin fans yucky wucky..,
 
 INT:
 
-curse of darkheart fans i lOVE THAT GAME SO MUCH ARGHHHH, alien franchise!!!! i love those movies, sprunki fans pplease, pjsk fans, fosaken, trud, block tales, basically any roblox media mayhaps...
+curse of darkheart fans i lOVE THAT GAME SO MUCH ARGHHHH, alien franchise!!!! i love those movies, pjsk fans, fosaken, trud, block tales, basically any roblox media mayhaps...
 
 BYI:
 
