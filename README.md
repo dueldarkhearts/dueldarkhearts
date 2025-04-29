@@ -8,7 +8,7 @@ proship, pdf file, basic criteria, dsmp fans, helluva/hazbin fans yucky wucky..,
 
 INT:
 
-curse of darkheart fans i lOVE THAT GAME SO MUCH ARGHHHH, phighting!(not THAT much anymore tho), alien franchise!!!!, crk/ovenbreak, pjsk fans, fosaken, trud, block tales, basically any roblox media mayhaps...
+curse of darkheart fans i lOVE THAT GAME SO MUCH ARGHHHH, LAPFOX/HALLEY LABS!!! mostly renard and greenhouse (i HATE the person behind lap/halley and i dont condone their actions.) phighting!(not THAT much anymore tho), alien franchise!!!!, crk/ovenbreak, pjsk fans, fosaken, trud, block tales, basically any roblox media mayhaps...
 
 BYI:
 
