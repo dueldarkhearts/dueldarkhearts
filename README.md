@@ -8,7 +8,7 @@ proship, pdf file, basic criteria, dsmp fans, helluva/hazbin fans yucky wucky..,
 
 INT:
 
-curse of darkheart fans, LAPFOX/HALLEY LABS!!! mostly renard and greenhouse (i HATE the person behind lap/halley and i dont condone their actions.) phighting!(not THAT much anymore tho), alien franchise, crk/ovenbreak, pjsk fans, fosaken, trud, block tales, basically any roblox media mayhaps...
+roblox stuff! mainly phighting, forsaken, or anything that relates to old roblox hackers and stuff. 45229 creepypasta SPECIFICALLY!! love 45229... really wish ppl talked abt it more </3
 
 BYI:
 
