@@ -4,7 +4,7 @@ avid mentally unwell ponytown player
 
 DNI:
 
-all proship or anybody relating/supporting it. absolutely disgusting.
+all proship or anybody relating/supporting it. absolutely disgusting. hope yall die im not joking.
 
 INT:
 
