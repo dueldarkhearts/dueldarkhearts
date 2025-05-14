@@ -12,7 +12,7 @@ roblox stuff! mainly phighting, forsaken, or anything that relates to old roblox
 
 BYI:
 
-i have autism so be wary of me yapping abt my interests
+i have (diagnosed) autism so be wary of me yapping abt my interests
 
 i have a touch comfort pleaseplease PLEASE c+h i beg
 
