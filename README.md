@@ -1,19 +1,39 @@
-hi im nurse
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/e752ece3-f32f-4612-bd0f-a1496ac6614e" alt="description of image" width="750" height="150">
+</div>
 
-avid mentally unwell ponytown player
+⠀
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/9e3f1fed-6843-4a06-b43a-809ba3587d60" alt="description of image" width="250" height="250">
+</div>
+⠀
+<p align="center">
+❝ you will never get rid of u45229s . . . ❞
+</p>
 
-DNI:
+⠀
+<p align="center">
+coob
+</p>
 
-all proship or anybody relating/supporting it. absolutely disgusting. DOUBLEFEDORA SHIPPERS IWC. literallyu so stupid
+<p align="center">
+number one 45229 fan in the world
+</p>
 
-INT/my interests
+<p align="center">
+<a href="https://rentry.co/45229">rentry</a> <a href="https://45229.atabook.org/">atabook</a>
+</p>
 
-roblox stuff! mainly phighting, forsaken, or anything that relates to old roblox hackers and stuff. 45229 creepypasta SPECIFICALLY!! love 45229... really wish ppl talked abt it more </3
+<p align="center">
+i legit need more friends if u wanna be my moot then just contact me on discord (nurseluvr)
+</p>
 
-BYI:
+⠀
+<p align="center">
+sign my atabook!
+</p>
+⠀
 
-i have (diagnosed) autism so be wary of me yapping abt my interests
-
-i have a touch comfort pleaseplease PLEASE c+h i beg
-
-**more info on my rentry i just wanted to put this here bc nobody reads it**
+<div align="center">
+  <img src="https://github.com/user-attachments/assets/9ae5aaf7-f4da-407d-835a-5ae06bf87358" alt="description of image" width="750" height="150">
+</div>
