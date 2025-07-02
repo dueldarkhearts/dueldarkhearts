@@ -13,13 +13,24 @@
 
 ⠀
 <p align="center">
-coob
+coob or close
 </p>
 
 <p align="center">
-number one 45229 fan in the world
+i only go by he/him
 </p>
 
+<p align="center">
+number one 45229 fan in the world.
+</p>
+⠀
+<p align="center">
+hi im coob. im a roblox game dev and artist for curse of darkheart!!! (not released yet)
+</p>
+<p align="center">
+i like to draw and play games with my oomfies bc they are epicsauce!!
+</p>
+⠀
 <p align="center">
 <a href="https://rentry.co/45229">rentry</a> , <a href="https://45229.atabook.org/">atabook</a> , <a href="https://pronouns.cc/@nurseluvr">prns</a>
 </p>
@@ -30,7 +41,7 @@ i legit need more friends if u wanna be my moot then just contact me on discord 
 
 ⠀
 <p align="center">
-sign my atabook!
+sign my atabook! (pleasepleaaplepalspleaplsplpslplspls)
 </p>
 ⠀
 
