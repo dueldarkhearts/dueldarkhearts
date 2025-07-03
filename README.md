@@ -11,7 +11,12 @@
 ❝ you will never get rid of u45229s . . . ❞
 </p>
 
-⠀
+<p align="center">
+<a href="https://rentry.co/pairofscissors">rentry</a> , <a href="https://45229.atabook.org/">atabook</a> , <a href="https://pronouns.cc/@nurseluvr">prns</a>
+</p>
+<p align="center">
+MY RENTRY HAS HEAVY EYESTRAIN; BE CAUTIOUS.
+</p>⠀
 <p align="center">
 coob or close
 </p>
@@ -30,13 +35,7 @@ hi im coob. im a roblox game dev and artist for curse of darkheart!!! (not relea
 <p align="center">
 i like to draw and play games with my oomfies bc they are epicsauce!!
 </p>
-⠀
-<p align="center">
-<a href="https://rentry.co/pairofscissors">rentry</a> , <a href="https://45229.atabook.org/">atabook</a> , <a href="https://pronouns.cc/@nurseluvr">prns</a>
-</p>
-<p align="center">
-MY RENTRY HAS HEAVY EYESTRAIN; BE CAUTIOUS.
-</p>
+
 ⠀
 <p align="center">
 pfp by me
