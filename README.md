@@ -36,6 +36,10 @@ i like to draw and play games with my oomfies bc they are epicsauce!!
 </p>
 
 <p align="center">
+pfp by me
+</p>
+
+<p align="center">
 i legit need more friends if u wanna be my moot then just contact me on discord (nurseluvr)
 </p>
 
