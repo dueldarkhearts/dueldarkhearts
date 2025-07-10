@@ -15,8 +15,15 @@
 <a href="https://rentry.co/pairofscissors">rentry</a> , <a href="https://45229.atabook.org/">atabook</a> , <a href="https://pronouns.cc/@nurseluvr">prns</a>
 </p>
 <p align="center">
-MY RENTRY HAS HEAVY EYESTRAIN; BE CAUTIOUS.
-</p>⠀
+MY RENTRYs HAS HEAVY EYESTRAIN; BE CAUTIOUS.
+</p>
+<p align="center">
+<a href="https://rentry.co/curseofdarkheart">more detailed rentry about me</a>
+</p>
+<p align="center">
+second rentry is for people who want to know more about me and (maybe) become freinds with me.
+</p>
+⠀
 <p align="center">
 coob or close
 </p>
